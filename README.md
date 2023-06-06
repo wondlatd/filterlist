@@ -1,4 +1,4 @@
-reddit.com/r/pussy/
+reddit.com/r/pussy
 reddit.com/r/nsfw/
 reddit.com/r/gonewild/
 reddit.com/r/NSFW_GIF/
